@@ -1,4 +1,2 @@
 # pubg
 online game
-
-ffaaaaaaaaa
